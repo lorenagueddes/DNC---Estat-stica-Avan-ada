@@ -1,1 +1,1 @@
-# DNC---Estat-stica-Avançada
+# DNC---Estatística-Avançada
